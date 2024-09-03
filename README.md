@@ -1,1 +1,0 @@
-# jorgegonzalezv.github.io
